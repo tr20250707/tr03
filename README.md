@@ -13,6 +13,6 @@
 最大优势是平台无广告，让你专心观看，不受打扰。所有数据传输加密，确保隐私安全，无需注册，直接访问即可观看。
 如果你需要一个免注册、无广告、安全的日本AV观看平台，这里是理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/tr20250707/tr03 ）</span>
 
 
